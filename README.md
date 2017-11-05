@@ -1,1 +1,3 @@
 # Recept
+
+Samlade favoritrecept! 🍲
