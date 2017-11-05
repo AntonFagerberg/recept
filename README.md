@@ -1,3 +1,0 @@
-# Recept
-
-Samlade favoritrecept! 🍲
