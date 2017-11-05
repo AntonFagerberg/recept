@@ -1,6 +1,5 @@
 # Vallmopannkakor
 
-## Ingredienser
 * 2 ägg
 * 2 små mogna bananer
 * 85g smält smör
