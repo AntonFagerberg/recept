@@ -5,4 +5,7 @@
 - 1 msk honung (fast)
 - 1 ägg
 
+- potatismjöl
+- ströbröd
+
 Torka av skinkan innan med hushållspapper. Täck med potatismjöl. Pensla senapsblandningen tills skinkan är täckt, täck med ströbröd och dutta på resten av senapsblandningen.
